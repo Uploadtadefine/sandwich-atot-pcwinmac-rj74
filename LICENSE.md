@@ -1,4 +1,4 @@
-# 
+# Automático sandwich attack bot modelos para Mac OS | Exclusivo sandwich attack bot modelos para PC Windows. Com proteção contra front-running e ordens limite — otimizado para máximo desempeño en cada plataforma.
 
 
 
